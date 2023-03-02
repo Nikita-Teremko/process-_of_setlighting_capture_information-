@@ -1,0 +1,1 @@
+# process-_of_setlighting_capture_information-
